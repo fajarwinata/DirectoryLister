@@ -1,0 +1,2 @@
+Lokasi Penempatan<br>
+GAMBAR
